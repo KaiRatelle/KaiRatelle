@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KaiRatelle
+- 👀 I’m interested in: code
+- 🌱 I’m currently learning: code
+- 💞️ I’m looking to collaborate on: code
+- 📫 How to reach me: code?
+- 😄 Pronouns: code (He/Him)
+- ⚡ Fun fact: code
